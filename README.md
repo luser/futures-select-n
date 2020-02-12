@@ -1,0 +1,1 @@
+***CURSED CODE DO NOT OPEN***
